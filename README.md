@@ -26,4 +26,3 @@
    - Provided actionable insights for businesses and policymakers navigating the effects of the pandemic on the tech industry.
    - Contributed to the body of knowledge on COVID-19's impact on employment trends in the tech sector through publication of research findings.
 
-Remember to tailor the language and details to match the specific job or industry you're applying to. Highlighting concrete achievements and skills developed through the project will make it stand out on your resume.
